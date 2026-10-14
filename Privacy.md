@@ -1,8 +1,8 @@
-# Base Converter Privacy Policy
+# APP Privacy Policy
 
 English | [中文](#中文)
 
-Effective date: October 7, 2026
+Effective date: October 12, 2026
 
 ## English
 
